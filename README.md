@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Domènec Huerta
+- 👀 I’m interested in Anything remotely related to physics
+- 🌱 I’m currently learning physics, mathematics and chemistry at th Autonomous University of Barcelona
+- 💞️ I’m looking to collaborate on making everyones life easyer 
+- 📫 How to reach me 0208dhe@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I love reading Murakami books
